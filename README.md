@@ -15,6 +15,7 @@ https://www.boomlive.in/fast-check
 https://www.factchecker.in/
 https://www.altnews.in/
 https://www.thequint.com/
+https://www.aa.com.tr/en/africa/madagascar-slams-who-for-not-endorsing-its-herbal-cure/1836905
 
 https://toolbox.google.com/factcheck/apis
 
