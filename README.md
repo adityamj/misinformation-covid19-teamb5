@@ -28,6 +28,9 @@ https://www.foxnews.com/politics/coronavirus-wuhan-lab-china-compete-us-sources
 #WHO is China-centric
 https://www.foxnews.com/politics/trump-announces-funding-to-world-health-organization-who-halted
 
+#use the WHO to mislead the global community
+https://www.voanews.com/science-health/coronavirus-outbreak/trump-who-china-centric-really-blew-it-coronavirus
+
 https://toolbox.google.com/factcheck/apis
 
 https://data.world/kungfuaiteam/coronavirus-twitter-analysis
