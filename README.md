@@ -16,6 +16,24 @@ https://www.factchecker.in/
 https://www.altnews.in/
 https://www.thequint.com/
 
+
+#herbal cure
+https://www.aa.com.tr/en/africa/madagascar-slams-who-for-not-endorsing-its-herbal-cure/1836905
+
+
+#COVID-19 originated in a lab
+https://www.foxnews.com/politics/coronavirus-wuhan-lab-china-compete-us-sources
+
+
+#WHO is China-centric
+https://www.foxnews.com/politics/trump-announces-funding-to-world-health-organization-who-halted
+
+#use the WHO to mislead the global community
+https://www.voanews.com/science-health/coronavirus-outbreak/trump-who-china-centric-really-blew-it-coronavirus
+
+#The "truth" about Miracle Mineral Solution(MMS)
+https://www.jordansather.com/blog/thetruthaboutmms
+
 https://toolbox.google.com/factcheck/apis
 
 https://data.world/kungfuaiteam/coronavirus-twitter-analysis
