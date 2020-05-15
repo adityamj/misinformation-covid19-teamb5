@@ -31,6 +31,9 @@ https://www.foxnews.com/politics/trump-announces-funding-to-world-health-organiz
 #use the WHO to mislead the global community
 https://www.voanews.com/science-health/coronavirus-outbreak/trump-who-china-centric-really-blew-it-coronavirus
 
+#The "truth" about Miracle Mineral Solution(MMS)
+https://www.jordansather.com/blog/thetruthaboutmms
+
 https://toolbox.google.com/factcheck/apis
 
 https://data.world/kungfuaiteam/coronavirus-twitter-analysis
